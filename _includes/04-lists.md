@@ -1,4 +1,4 @@
-*lasgnia
-*:smile:
-*ava
-*naab
+* lasgnia
+* :smile:
+* ava
+* naab
